@@ -1,2 +1,2 @@
 # cakrawala
-i don't now
+i don't know
